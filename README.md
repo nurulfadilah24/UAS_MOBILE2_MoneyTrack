@@ -201,6 +201,10 @@ https://youtu.be/vdoaSatsTIs?si=ucF5GaOw4dPCw7zj
 
 ---
 
+# LINK CLIKPUP:
+https://app.clickup.com/90181798980/v/s/90187469130 
+
+---
 
 # Kesimpulan
 
