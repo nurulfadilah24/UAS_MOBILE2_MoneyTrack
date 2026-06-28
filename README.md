@@ -195,13 +195,9 @@ Halaman yang digunakan untuk memperbarui nama, email, dan password pengguna.
 
 ---
 
-# Demo Aplikasi
+# LINK PROTOTYPE
 
 https://youtu.be/vdoaSatsTIs?si=ucF5GaOw4dPCw7zj 
-
-**Link Video (Clipchamp / Google Drive)**
-
-
 
 ---
 
